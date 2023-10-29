@@ -1,0 +1,2 @@
+# Rauka
+Akimbek Rauan
